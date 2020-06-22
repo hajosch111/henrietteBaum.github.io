@@ -17,3 +17,10 @@ Sokrates war ein für das abendländische Denken grundlegender griechischer Phil
 
 * Wenn wir all unser Unglück auf einen gemeinsamen Haufen legten und dann jeder davon einen gleich großen Teil wieder an sich nehmen müsste, so würden die meisten Menschen zufrieden ihr eigenes Unglück zurücknehmen und davongehen.
 
+
+> Der Kluge lernt aus allem und von jedem, der Normale aus seinen Erfahrungen und der Dumme weiß alles besser. 
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/a/a4/Socrates_Louvre.jpg/440px-Socrates_Louvre.jpg"/>
+
+
+
