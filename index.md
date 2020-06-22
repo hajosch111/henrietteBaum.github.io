@@ -41,3 +41,7 @@ Quelle: [https://de.wikipedia.org/wiki/Sokrates](Wikipedia.de)
 Abbildung: [Von Sting, CC BY-SA 2.5, https://commons.wikimedia.org/w/index.php?curid=3569936]
 
 
+## Weiterführende Literatur
+
+Sehr lesenswert aus Sicht der Verfasserin ist insbesondere das Buch von Heinrich Maier "Sokrates, sein Werk und seine geschichtliche Stellung", Scientia Verlag Aalen, Nachdruck der Ausgabe Tübingen 1913. Das Buch ist allerdings nur noch antiquarisch zu bekommen.
+
